@@ -1,0 +1,1 @@
+# AM4096-Rotary-Magnetic-Encoder-Module-
